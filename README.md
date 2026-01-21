@@ -5,4 +5,4 @@ My research code is open source and should soon be released via our [repo](https
 
 I have also been involved with plenty of outreach and science communication work, including the Warwick planetarium and the Warwick Christmas lectures. I am also currently a Graduate Teaching Assistant for Warwick University's engineering degree apprenticeships. 
 
-I'd love to hear from you! You can reach me via email: rachel.kane@warwick.ac.uk or on [Linkedin](www.linkedin.com/in/rachelkane-uow/).
+I'd love to hear from you! You can reach me via email: rachel.kane@warwick.ac.uk or on [Linkedin](https://www.linkedin.com/in/rachelkane-uow/).
